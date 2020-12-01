@@ -1,4 +1,14 @@
-### Hi there 👋
+### nes!.
+
+我是臤徘斯 mi "Kinboise"\[Kinbvise\]
+
+- 人造语言者 hafa-zugike
+
+- 我的世界基岩版先拂服务器服主 lopike a Seon  Phourl
+
+- 主辅棋作者 zugike a tigo-jafo
+
+……
 
 <!--
 **Kinboise/Kinboise** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
