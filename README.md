@@ -24,7 +24,7 @@ mi "Kinboise"\[Kinbvise\]. mi but e -\
 
 #### 其他<br>fene<br>*Others*
 - 主辅棋作者\
-  zugike a tigo-jafo\
+  zugike a tego-jafo\
   *Designer of Zhufuqi, a boardgame*
 
 ……
